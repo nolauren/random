@@ -43,6 +43,9 @@ That question forms the basis of *In Local Hands*. The answer draws on understan
 
  In *In Local Hands* , I explore an emerging multi-generational and multi-racial strategy - the film workshop - to wrangle control of moving image culture from the hands of Hollywood and corporate entities. The strategy produced a  practice and cultural logic that I call participatory media.   
 
+I argue that 
+
+
 
 
 ## Situating *In Local Hands*
